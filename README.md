@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-RUOH781216HQTZRC01
+RUOH781216HQTZRC01
